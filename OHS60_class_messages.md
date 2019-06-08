@@ -11,6 +11,28 @@ output:
 ## Start of site, 08/31/16
 
 
+## 06/04/2019
+
+Phyllis Larson
+
+ What a sorry end for such a nice person. She deserved better.
+JANET
+
+## 06/02/2019
+
+Phyllis Larson
+
+Phyllis Larson Beavers Richardson passed away on May 28, 2019 at 
+Ogallala, NE.  She is survived by two daughters and one brother Gilbert 
+Larson.  She had been living in assisted living in Grant and I would 
+visit with her once in a while.  She was basically blind and moved to 
+the rest home in Ogallala six months ago.
+
+Her obituary in on Draucker Funeral Home Ogallala.
+
+
+Darrell Pierce
+
 ## 04/16/19
 
 Date: 	Tue, 16 Apr 2019 02:01:03 +0000 (UTC)
