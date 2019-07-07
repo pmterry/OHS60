@@ -9,7 +9,7 @@ output:
 
 
 
-10/22/16: 
+10/22/16: (updated 07/06/19 per Darrell)
 
 List of email addresses of OHS60 classmembers.
 
@@ -58,7 +58,7 @@ Petersen, Ron                     tap3700@comcast.net
 Pierce, Darrell                   clpierce@gpcom.net  
 Pierpoint, Bill                   billmarep@aol.com  
 
-Plummer, Kay (Kimberly)           kay.kimberly41@icloud.com  
+Plummer, Kay (Kimberly)           kaykimberly41@gmail.com  
 Pounds, Bonnie (Erickson)         derickson6@cox.net  
 
 Price, Bob                        bobprice60@yahoo.com, deannieprice@cox.net  
