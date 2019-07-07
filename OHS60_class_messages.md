@@ -11,11 +11,44 @@ output:
 ## Start of site, 08/31/16
 
 
+## 06/25/19
+
+Re: new members
+
+The more the merrier! Welcome aboard.
+
+From
+billmarep
+
+## 06/25/19
+
+Re: new members
+
+ Welcome both of you. Good to stay in touch thanks to Darrell.
+JANET
+
+From
+Janet JOHNSON
+
+## 06/25/19
+
+new members
+
+We have two classmates that want to join our network:
+
+Claudette Nelson Kelley   lives in North Platte, NE 
+claudettekelley148@yahoo.com
+
+Kay Plummer Kimberly lives at Big Springs. NE kaykimberly41@gmail.com
+
+
+Darrell Pierce
+
 ## 06/04/2019
 
 Phyllis Larson
 
- What a sorry end for such a nice person. She deserved better.
+What a sorry end for such a nice person. She deserved better.
 JANET
 
 ## 06/02/2019

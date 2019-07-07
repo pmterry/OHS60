@@ -1,6 +1,11 @@
-# OHS60_email_address_list
-M. Terry  
-October 22, 2016  
+---
+title: "OHS60_email_address_list"
+author: "M. Terry"
+date: "October 22, 2016"
+output: 
+  html_document: 
+    keep_md: yes
+---
 
 
 
@@ -10,7 +15,6 @@ List of email addresses of OHS60 classmembers.
 
 This github URL: https://github.com/pmterry/OHS60/
 
-10/02/16:
 
 Aaron, Lucy (Adams)               laadams@adams.edu  
 Alhemeyer, Connie (Cook)          dean_cook@charter.net  
@@ -46,33 +50,35 @@ Krajewski, Bernie                 bjkrajewski2@charter.net
 Lauderbaugh, John                 jtlauder@att.net  
 
 McBride, Sharrel (Arterburn)      searterbu@charter.net  
+Nelson, Claudette (Kelley)        claudettekelley148@yahoo.com  
+
 Olsen, Beverly (Laird)            lmlbgl@yahoo.com  
-
 Petersen, Ron                     tap3700@comcast.net  
+
 Pierce, Darrell                   clpierce@gpcom.net  
-
 Pierpoint, Bill                   billmarep@aol.com  
-Plummer, Kay (Kimberly)           kay.kimberly@icloud.com
 
+Plummer, Kay (Kimberly)           kay.kimberly41@icloud.com  
 Pounds, Bonnie (Erickson)         derickson6@cox.net  
+
 Price, Bob                        bobprice60@yahoo.com, deannieprice@cox.net  
-
 Putman, Jim                       sjput1@yahoo.com  
+
 Ribble, Bev (Madison)             bvmadison@msn.com  
-
 Scott, Mike                       mikeandnancyscott@juno.com  
+
 Smith, Charles                    c7psmith@hotmail.com  
-
 Spangler, Wayne                   waynespangler43@outlook.com  
+
 Terry, Mike                       pterry2@mac.com  
-
 Thalken, Dick                     thalken@aol.com  
+
 Thalken, Mary Ann (Brandorf)      maryann@brandorff.org  
-
 Walker, L. D.                     ldsherriwalker@gmail.com  
-Watson, Karen (Lee)               mowerman@gpcom.net  
 
+Watson, Karen (Lee)               mowerman@gpcom.net  
 Wilcoxson, Sharon (Lenox)         lenoxof@rollanet.org  
+
 Williams, Jerry                   jerry@amallc.org  
 
 ## 01/29/17
