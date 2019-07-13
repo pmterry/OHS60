@@ -11,6 +11,19 @@ output:
 ## Start of site, 08/31/16
 
 
+## 07/10/19
+
+From
+Darrell & Cathy Pierce to 39 recipients
+
+I received an email from Mike Terry and he had updated our web site.  It is
+
+https://github.com/pmterry/OHS60.
+
+If you have some time check in out.
+
+Darrell Pierce
+
 ## 06/25/19
 
 Re: new members

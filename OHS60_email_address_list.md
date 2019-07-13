@@ -17,9 +17,6 @@ This github URL: https://github.com/pmterry/OHS60/
 
 
 Aaron, Lucy (Adams)               laadams@adams.edu  
-Alhemeyer, Connie (Cook)          dean_cook@charter.net  
-
-Anderson, Sharon (Frickey)        rfrickey@nebnet.net  
 Armstrong, Bill                   wwa@allophone.com  
 
 Beach, Otis                       beagledogco@msn.com  
@@ -29,15 +26,12 @@ Brown, Tom                        tcbrown@curtis-ne.com
 Brunswig, Dave                    dbrunswig@verizon.net  
 
 Callen, Larry                     callenlarry@gmail.com  
-Cobaugh, Joyce                    jaseffron@verizon.net  
-
 Curtis, Norma (Paloucek)          fjp@pctelcom.coop  
-Davidson, Karen (Green)           jackg_6@msn.com
 
+Davidson, Karen (Green)           jackg_6@msn.com  
 Dobesh, James                     jddobe@gmail.com  
-Feltz, Jonnie (Petersen)          petejonnie@gmail.com  
 
-Fulcher, Ben                      benvesta@msa.com  
+Feltz, Jonnie (Petersen)          petejonnie@gmail.com  
 Goossen, Roger                    rdg5779@comcast.net  
 
 Harding, Ken                      ken@islandwest.com  
@@ -58,7 +52,7 @@ Petersen, Ron                     tap3700@comcast.net
 Pierce, Darrell                   clpierce@gpcom.net  
 Pierpoint, Bill                   billmarep@aol.com  
 
-Plummer, Kay (Kimberly)           kaykimberly41@gmail.com  
+Plummer, Kay (Kimberly)           kaykimberly41@gmail.com   
 Pounds, Bonnie (Erickson)         derickson6@cox.net  
 
 Price, Bob                        bobprice60@yahoo.com, deannieprice@cox.net  
@@ -80,6 +74,14 @@ Watson, Karen (Lee)               mowerman@gpcom.net
 Wilcoxson, Sharon (Lenox)         lenoxof@rollanet.org  
 
 Williams, Jerry                   jerry@amallc.org  
+
+## 07/13/19  
+
+Reconciling with Darrell Pierce, moving any 'nondeliverable' email address down here, presumably addresses above all deliverable, current.  
+
+Alhemeyer, Connie (Cook)          dean_cook@charter.net  
+
+Dan Nowak (I note has never had an email address on this list)  
 
 ## 01/29/17
 
