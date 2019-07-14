@@ -17,6 +17,9 @@ This github URL: https://github.com/pmterry/OHS60/
 
 
 Aaron, Lucy (Adams)               laadams@adams.edu  
+Alhemeyer, Connie (Cook)          dean_cook@charter.net  
+
+Anderson, Sharon (Frickey)        rfrickey@nebnet.net
 Armstrong, Bill                   wwa@allophone.com  
 
 Beach, Otis                       beagledogco@msn.com  
@@ -53,45 +56,41 @@ Pierce, Darrell                   clpierce@gpcom.net
 Pierpoint, Bill                   billmarep@aol.com  
 
 Plummer, Kay (Kimberly)           kaykimberly41@gmail.com   
-Pounds, Bonnie (Erickson)         derickson6@cox.net  
-
 Price, Bob                        bobprice60@yahoo.com, deannieprice@cox.net  
+
 Putman, Jim                       sjput1@yahoo.com  
-
 Ribble, Bev (Madison)             bvmadison@msn.com  
+
 Scott, Mike                       mikeandnancyscott@juno.com  
-
 Smith, Charles                    c7psmith@hotmail.com  
+
 Spangler, Wayne                   waynespangler43@outlook.com  
-
 Terry, Mike                       pterry2@mac.com  
+
 Thalken, Dick                     thalken@aol.com  
-
 Thalken, Mary Ann (Brandorf)      maryann@brandorff.org  
+
 Walker, L. D.                     ldsherriwalker@gmail.com  
-
 Watson, Karen (Lee)               mowerman@gpcom.net  
-Wilcoxson, Sharon (Lenox)         lenoxof@rollanet.org  
 
+Wilcoxson, Sharon (Lenox)         lenoxof@rollanet.org  
 Williams, Jerry                   jerry@amallc.org  
 
 ## 07/13/19  
 
-Reconciling with Darrell Pierce, moving any 'nondeliverable' email address down here, presumably addresses above all deliverable, current.  
-
-Alhemeyer, Connie (Cook)          dean_cook@charter.net  
+Reconciling with Darrell Pierce, moving any 'nondeliverable' email address below here, presumably addresses above all deliverable, current.  
 
 Dan Nowak (I note has never had an email address on this list)  
 
+Pounds, Bonnie (Erickson)         derickson6@cox.net  
+
 ## 01/29/17
 
-I note three of 43 addresses I emailed to on this date were returned, not deliverable. They were:
-
-Anderson, Sharon (Frickey)        rfrickey@nebnet.net
+I note two of 43 addresses I emailed to on this date were returned, not deliverable. They were:
 
 Cobaugh, Joyce                    jaseffron@verizon.net
 
 Fulcher, Ben                      benvesta@msa.com
 
 
-Of the 40 emails successfully delivered, 39 different persons received it as one person has two email addresses on the list. 
+I note, one person has two email addresses on the list. 
