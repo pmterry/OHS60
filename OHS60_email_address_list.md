@@ -19,7 +19,7 @@ This github URL: https://github.com/pmterry/OHS60/
 Aaron, Lucy (Adams)               laadams@adams.edu  
 Alhemeyer, Connie (Cook)          dean_cook@charter.net  
 
-Anderson, Sharon (Frickey)        rfrickey@nebnet.net
+Anderson, Sharon (Frickey)        rfrickey@nebnet.net  
 Armstrong, Bill                   wwa@allophone.com  
 
 Beach, Otis                       beagledogco@msn.com  
