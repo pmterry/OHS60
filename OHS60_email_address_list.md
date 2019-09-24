@@ -9,7 +9,7 @@ output:
 
 
 
-10/22/16: (updated 07/06/19 per Darrell)
+10/22/16: (updated 09/24/19 per Darrell)
 
 List of email addresses of OHS60 classmembers.
 
@@ -43,47 +43,50 @@ Huff, Rhonda (Duba)               njduba15@charter.net
 Hunter, Bob                       hunters@mindspring.com  
 Johnson, Janet                    msjazzyjmj@msn.com  
 
-Krajewski, Bernie                 bjkrajewski2@charter.net  
 Lauderbaugh, John                 jtlauder@att.net  
-
 McBride, Sharrel (Arterburn)      searterbu@charter.net  
+
 Nelson, Claudette (Kelley)        claudettekelley148@yahoo.com  
-
 Olsen, Beverly (Laird)            lmlbgl@yahoo.com  
+
 Petersen, Ron                     tap3700@comcast.net  
-
 Pierce, Darrell                   clpierce@gpcom.net  
+
 Pierpoint, Bill                   billmarep@aol.com  
-
 Plummer, Kay (Kimberly)           kaykimberly41@gmail.com   
-Price, Bob                        bobprice60@yahoo.com, deannieprice@cox.net  
 
+Price, Bob                        deannieprice@cox.net  
 Putman, Jim                       sjput1@yahoo.com  
+
 Ribble, Bev (Madison)             bvmadison@msn.com  
-
 Scott, Mike                       mikeandnancyscott@juno.com  
+
 Smith, Charles                    c7psmith@hotmail.com  
-
 Spangler, Wayne                   waynespangler43@outlook.com  
+
 Terry, Mike                       pterry2@mac.com  
-
 Thalken, Dick                     thalken@aol.com  
+
 Thalken, Mary Ann (Brandorf)      maryann@brandorff.org  
-
 Walker, L. D.                     ldsherriwalker@gmail.com  
-Watson, Karen (Lee)               mowerman@gpcom.net  
 
+Watson, Karen (Lee)               mowerman@gpcom.net  
 Wilcoxson, Sharon (Lenox)         lenoxof@rollanet.org  
+
 Williams, Jerry                   jerry@amallc.org  
 
-## 07/13/19  
+## 09/24/19  
 
 Reconciling with Darrell Pierce, moving any 'nondeliverable' email address below here, presumably addresses above all deliverable, current.  
 
 Dan Nowak (I note has never had an email address on this list)  
 
-Pounds, Bonnie (Erickson)         derickson6@cox.net  
+Pounds, Bonnie (Erickson)         derickson6@cox.net
 
+Price, Bob                        bobprice60@yahoo.com  
+
+Krajewski, Bernie                 bjkrajewski2@charter.net  
+  
 ## 01/29/17
 
 I note two of 43 addresses I emailed to on this date were returned, not deliverable. They were:
@@ -91,6 +94,3 @@ I note two of 43 addresses I emailed to on this date were returned, not delivera
 Cobaugh, Joyce                    jaseffron@verizon.net
 
 Fulcher, Ben                      benvesta@msa.com
-
-
-I note, one person has two email addresses on the list. 
