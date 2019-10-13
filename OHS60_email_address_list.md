@@ -68,11 +68,12 @@ Terry, Mike                       pterry2@mac.com
 Thalken, Dick                     thalken@aol.com  
 
 Thalken, Mary Ann (Brandorf)      maryann@brandorff.org  
+Tilton, Loren                     lt4590@ymail.com
+
 Walker, L. D.                     ldsherriwalker@gmail.com  
-
 Watson, Karen (Lee)               mowerman@gpcom.net  
-Wilcoxson, Sharon (Lenox)         lenoxof@rollanet.org  
 
+Wilcoxson, Sharon (Lenox)         lenoxof@rollanet.org  
 Williams, Jerry                   jerry@amallc.org  
 
 ## 09/24/19  
