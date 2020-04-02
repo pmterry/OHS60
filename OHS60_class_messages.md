@@ -11,6 +11,21 @@ output:
 ## Start of site, 08/31/16
 
 
+## 03/16/20
+
+60 year class reunion
+
+IT IS COMING SOON!!    Mark your calandar for Sept. 17, 18, 19, 2020 for 
+our reunion in Ogallala.  The members have started planning and we will 
+have more details in the up coming months.
+
+Mike Terry has kept a web page with class information.   It is     
+https://github.com/pmterry/ohs60.
+
+Avoid the virus and hope to see you in September.
+
+Darrell Pierce
+
 ## 07/10/19
 
 From
