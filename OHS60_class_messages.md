@@ -10,6 +10,83 @@ output:
 
 ## Start of site, 08/31/16
 
+## 01/25/22
+
+Fwd: good afternoon
+
+I do not know if you know this or not, but in yesterday's Denver Post it is listed that there is a Celebration of Life for Dennis Dobesh, Wednesday at 10 at the Christ Church United Methodist at 690 No Colorado Blvd, corner of 7th and Colorado.  That is all it says. 
+
+Maybe some of the Denver people can make it!   At the end of Ed's life there was some dementia starting to slide  in and that is so very hard to deal with.  
+
+Hope you and Cathy are doing well.  
+
+lucy aaron adams 
+
+
+## 12/15/21
+
+Re: shocked
+
+I always appreciate your updates Darrell. Thank you. Also, wishing everyone a Merry Christmas and Happy New Year JerryWilliams
+
+Sent from my iPhone
+
+## 12/15/21
+
+shocked
+
+Yesterdays Keith County News had a obituary for Dennis Dobesh. Stated he
+died November 30 from Alzheimer's dementia at his home in Denver.  He
+never married and had no children.  Survivers include a partner Nancy
+Cuprisin and sister Debra.  Preceded in death by mother Dorthy, father
+Marius, and sister Karma Williamson.   Celebration of life will be held
+after the holidays.  The item did not list a funeral home in the Denver area
+
+I went to Walmart in Ogallala yesterday afternoon and saw Larry Laird,
+Bill Armstrong and Wayne Spangler.  Larry's wife Beverly Olson Larid and
+Bill's wife Diane have mobility problems so the do a lot of
+housekeeping.  Wayne lost his wife Carleen about 6 months ago.
+
+Wishing everyone a Merry Christmas and Happy New Year 2022
+
+Darrell Pierce
+
+## 11/01/21
+
+Bernie Krajewski
+
+Bernie Krajewski died on October 31, 2021 in Grand Island, NE.  I don't
+know any details.  Bernie & Jeanette moved to G I several years ago.
+
+Funeral services will be Friday Nov. 5, 2021 at St. Lukes Catholic
+Church in Ogallala.  Bernie and Janette had two girls and one boy. 
+(Nikki, Karma, Matt)
+
+Wait a day or two and the complete obituary will be on Prairie Hills
+Funeral Home Ogallala.
+
+Darrell Pierce
+
+## 05/03/21
+
+Subject: bad news
+
+ I found out this afternoon that Jane McGinley Walker died a few days ago
+and her funeral is next Monday May 10 th in Arthur.  Her obituary is on
+Draucker Funeral Home Ogallala.  Jane and I go back to 1948 when we
+started  first grade at the little country school in Keystone, also with
+Shirley Blomenkamp Fosbinder and Jonnie Feltz Peterson.
+
+
+Darrell Pierce
+
+## Sept 2021
+
+Bob Price passed away, Sept., 2021
+
+## Sept 2020
+
+L.D. Walker passed away Sept., 2020
 
 ## 03/16/20
 
