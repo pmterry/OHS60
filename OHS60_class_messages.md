@@ -10,6 +10,28 @@ output:
 
 ## Start of site, 08/31/16
 
+## 08/01/22
+
+Re: lost another classmate
+
+Sorry to hear about Wayne. Thanks for the update. Bill
+
+## 07/31/22
+
+lost another classmate
+
+I received a call this afternoon from Sharrel saying Wayne Spangler
+died.     His obituary is on Draucker Funeral Home for more
+information.  I last visited with Wayne the last week of June at a music
+concert in Ogallala.  In fact Wayne , Jonnie Feltz Peterson, Sharrel
+Arterburn and myself had a short visit before the music program
+started.  He seemed to be doing fine at that time, so do not know what
+happened.
+
+Sorry for the bad news,
+
+Darrell Pierce
+
 ## 01/25/22
 
 Fwd: good afternoon
