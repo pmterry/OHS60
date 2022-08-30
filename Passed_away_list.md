@@ -41,6 +41,7 @@ List re-updated from Darrell on 04/26/22
 * Jim Putman     4/13/2019
 * Pat Rogowski Osmera
 * Karolyn Sagert Schmidt     06/05/17
+* Wayne Spangler     07/31/2022
 * Dennis Tillman
 * Steve Turco     11/2012
 * L.D. Walker    9/2020
