@@ -13,9 +13,12 @@ These are the classmates that have passed away.  Since I have always been in the
  
 List updated from Darrell on 07/06/19  
 List re-updated from Darrell on 04/26/22
+List re-updated from Darrell on 05/13/23
+
 
 * Kirk Arterburn     4/23/1995
 * Anita Gail Bates Looney
+* Otis Beach      02/14/23 
 * Rod Boss    2/2014
 * Dale Bradley
 * Ed Brandorff
@@ -23,6 +26,7 @@ List re-updated from Darrell on 04/26/22
 * Karen Dressler Smith
 * Joanne Elmshaeuser Brill     4/2018
 * Diane Emery Olson
+* Joan Harrington Nelson      09/19/22
 * Ron Hinkle
 * Sidney Hood
 * Gregg Hoover      8/18/2015
