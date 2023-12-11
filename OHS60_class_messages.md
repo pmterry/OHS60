@@ -10,6 +10,50 @@ output:
 
 ## Start of site, 08/31/16
 
+## 11/17/23
+
+Carolyn Harmonson Ross
+Carolyn Harmonson Ross died on Sunday November 12, 2023 in North
+Platte.   Services are scheduled for Tuesday November 21, 2023 at
+Methodist Church in Ogallala at 10:00 AM.  She is survived by two daughters.
+
+A complete obituary is on Draucker Funeral Home Ogallala.
+
+Sorry for the bad news.
+
+Darrell Pierce
+
+## 03/31/23
+
+Richard Reitz
+From:	KENNETH HARDING <KEN@islandwest.com>
+To:	clpierce@gpcom.net
+
+I learned that Mr. Reitz passed peacefully yesterday afternoon in Arizona.
+
+Born November 26, 1931 and passed March 29, 2023.
+
+## 02/14/23
+
+Otis Beach
+I received an email from Bob Hunter saying Otis W. Beach JR. died last
+Wednesday .  The service will be on Sat. Feb 18 at Harmony Presbyterian
+Church at 400 Boardwalk Drive in Fort Collins at 2:00 PM. and will be
+live streamed.
+
+Memorials can be given to Family Housing Network of Fort Collins or
+University of Wyoming Law School.
+
+ Otis is survived by this wife Joyce Beach, son Eric and Andrea Beach
+and daughter Heather and Mike Ossian and two grandchildren.
+
+## 09/19/22
+
+Joan Harrington Nelson
+Joan died Sunday at the hospital in Grant, NE.   Obituary is on Prairie
+Hills Funeral home Ogallala, NE.   Services are scheduled for Wednesday
+morning at 10:30 in Ogallala.
+
 ## 08/01/22
 
 Re: lost another classmate
