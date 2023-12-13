@@ -12,8 +12,7 @@ output:
 These are the classmates that have passed away.  Since I have always been in the Ogallala area, I have gotten the information from the Keith County News.  There are several that we no longer have a current address and they could have died and not been reported in the paper if family no longer lived in the area.
  
 List updated from Darrell on 07/06/19  
-List re-updated from Darrell on 04/26/22
-List re-updated from Darrell on 05/13/23
+List re-updated from Darrell on 12/12/23
 
 
 * Kirk Arterburn     4/23/1995
@@ -26,6 +25,7 @@ List re-updated from Darrell on 05/13/23
 * Karen Dressler Smith
 * Joanne Elmshaeuser Brill     4/2018
 * Diane Emery Olson
+* Carolyn Harmonson Ross      11/17/23
 * Joan Harrington Nelson      09/19/22
 * Ron Hinkle
 * Sidney Hood
@@ -51,6 +51,9 @@ List re-updated from Darrell on 05/13/23
 * L.D. Walker    9/2020
 * Karen Watson Lee     1/27/2019
 * Sharon Young Hughes     3/10/2018
+
+Instructor
+* Richard Reitz     03/31/23        
 
 Keep in touch
  
